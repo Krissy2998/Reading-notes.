@@ -20,4 +20,4 @@ What is a growth mindset ?
 ### 3 reminders to promote growth mindset.
 * Be open to change and allow room for new adventures
 * Ask questions and think out loud
-* Be comfortable with making mistakes and overcoming imposter syndrome
+* Be comfortable with making mistakes and overcoming imposter syndrome.
