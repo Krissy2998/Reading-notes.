@@ -1,4 +1,4 @@
-# Hi ! Thank you for viewing my page!  
+## Hi ! Thank you for viewing my page!  
 
 My Name is Christol and I'm training to become a full stack developer.
 
