@@ -13,4 +13,7 @@ What is a growth mindset ?
 
 ![This is an insprtational photo about beliving in yourself](https://teacherbooker.com/wp-content/uploads/2017/10/Blog-pic-growth-mindset-1200x630.jpg)
 
-
+> 3 reminders to promote growth mindset.
+* Be open to change and allow room for new adventures
+* Ask questions and think out loud
+* Be comfortable with making mistakes and overcoming imposter syndrome
